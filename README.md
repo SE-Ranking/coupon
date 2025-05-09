@@ -1,4 +1,4 @@
-# SE Ranking Discount Coupon (May 2025) SAVE 51%
+# SE Ranking Discount Code (May 2025) Get 51% Off Coupon
 
 [![SE-Ranking-Pricing-Plans](https://github.com/user-attachments/assets/6e8a8a5d-ebb1-40aa-ab3b-e8ba57e4b99c)](https://seranking.com/?ga=4268354&source=link)
 
