@@ -1,22 +1,20 @@
 # SE Ranking Discount Code (May 2025) Get 51% Off Coupon
 
-[![SE-Ranking-Pricing-Plans](https://github.com/user-attachments/assets/6e8a8a5d-ebb1-40aa-ab3b-e8ba57e4b99c)](https://seranking.com/?ga=4268354&source=link)
-
 Are you looking for latest [SE Ranking coupon](https://seranking.com/?ga=4268354&source=link) to **save 20% on your plan**?
 
-[![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
+[![Discount button](https://github.com/user-attachments/assets/242ee78a-af8f-44ac-9a5f-da5312283eda)](https://seranking.com/?ga=4268354&source=link)
 
 ## 20% Off on All SE Ranking Plans
 
 If you’re new to SE Ranking, you can [**get 20% off any plan**](https://seranking.com/?ga=4268354&source=link) by using the code WELCOME20 at checkout. This works for both monthly and yearly plans — including Essential, Pro, and Business.
 
-[![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
+[![Discount button](https://github.com/user-attachments/assets/242ee78a-af8f-44ac-9a5f-da5312283eda)](https://seranking.com/?ga=4268354&source=link)
 
 ## 25% Off for First-Time Subscribers
 
 First-time subscribers can get a [**25% discount on any SE Ranking plan**](https://seranking.com/?ga=4268354&source=link). Just enter the promo code SERANK25 at checkout. This offer is valid until April 30, 2025, and applies to Essential, Pro, and Business plans.
 
-[![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
+[![Discount button](https://github.com/user-attachments/assets/242ee78a-af8f-44ac-9a5f-da5312283eda)](https://seranking.com/?ga=4268354&source=link)
 
 ## SE Ranking Discount Coupon - Up to 32% Off on Annual Plans
 
@@ -26,19 +24,19 @@ Choose a yearly SE Ranking plan and save big — up to 32% off.
 2. **Pro Plan** – $74.12/month (was $109)
 3. **Business Plan** – $162.52/month (was $239)
 
-[![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
+[![Discount button](https://github.com/user-attachments/assets/242ee78a-af8f-44ac-9a5f-da5312283eda)](https://seranking.com/?ga=4268354&source=link)
 
 ## 32% Off SERanking Coupon For Annual Plans
 
 Choosing an annual subscription can [**save you up to 32% on SE Ranking plans**](https://seranking.com/?ga=4268354&source=link). The Essential plan costs $37.40 per month, down from $55. The Pro plan is $74.12 per month, originally $109. The Business plan is $162.52 per month, reduced from $239.
 
-[![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
+[![Discount button](https://github.com/user-attachments/assets/242ee78a-af8f-44ac-9a5f-da5312283eda)](https://seranking.com/?ga=4268354&source=link)
 
 ## SE Ranking 14-Day Free Trial
 
 SE Ranking provides new users with a 14-day free trial. This gives full access to all features and does not need a credit card. This trial period lets users try out the platform before they subscribe.
 
-[![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
+[![Discount button](https://github.com/user-attachments/assets/242ee78a-af8f-44ac-9a5f-da5312283eda)](https://seranking.com/?ga=4268354&source=link)
 
 ## Latest SE Ranking Coupons – May 2025
 
@@ -200,7 +198,7 @@ We’ve covered everything you need to know about the SE Ranking Coupon for 2025
 
 Want to enhance your SEO strategy? An SE Ranking coupon is a smart way to begin without paying full price. SE Ranking provides tools for keyword research, rank tracking, and site audits. You also get a discount to support your success. Use SE Ranking coupons to save 50% now.
 
-[![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
+[![Discount button](https://github.com/user-attachments/assets/242ee78a-af8f-44ac-9a5f-da5312283eda)](https://seranking.com/?ga=4268354&source=link)
 
 ## FAQs
 
