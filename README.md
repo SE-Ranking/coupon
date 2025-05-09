@@ -8,13 +8,13 @@ Are you looking for latest [SE Ranking coupon](https://seranking.com/?ga=4268354
 
 ## 20% Off on All SE Ranking Plans
 
-If you’re new to SE Ranking, you can **get 20% off any plan** by using the code WELCOME20 at checkout. This works for both monthly and yearly plans — including Essential, Pro, and Business.
+If you’re new to SE Ranking, you can [**get 20% off any plan**](https://seranking.com/?ga=4268354&source=link) by using the code WELCOME20 at checkout. This works for both monthly and yearly plans — including Essential, Pro, and Business.
 
 [![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
 
 ## 25% Off for First-Time Subscribers
 
-First-time subscribers can get a **25% discount on any SE Ranking plan**. Just enter the promo code SERANK25 at checkout. This offer is valid until April 30, 2025, and applies to Essential, Pro, and Business plans.
+First-time subscribers can get a [**25% discount on any SE Ranking plan**](https://seranking.com/?ga=4268354&source=link). Just enter the promo code SERANK25 at checkout. This offer is valid until April 30, 2025, and applies to Essential, Pro, and Business plans.
 
 [![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
 
@@ -30,7 +30,7 @@ Choose a yearly SE Ranking plan and save big — up to 32% off.
 
 ## 32% Off SERanking Coupon For Annual Plans
 
-Choosing an annual subscription can save you up to 32% on SE Ranking plans. The Essential plan costs $37.40 per month, down from $55. The Pro plan is $74.12 per month, originally $109. The Business plan is $162.52 per month, reduced from $239.
+Choosing an annual subscription can [**save you up to 32% on SE Ranking plans**](https://seranking.com/?ga=4268354&source=link). The Essential plan costs $37.40 per month, down from $55. The Pro plan is $74.12 per month, originally $109. The Business plan is $162.52 per month, reduced from $239.
 
 [![download button](https://github.com/user-attachments/assets/79492656-c64f-4df1-bfeb-85ba40e813e3)](https://seranking.com/?ga=4268354&source=link)
 
